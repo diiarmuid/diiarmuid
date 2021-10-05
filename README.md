@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @diiarmuid
+- 👀 I’m interested in Generative AI
+- 🌱 I’m currently learning Java Script
+- 📫 How to reach me @di_armuid on instagram
